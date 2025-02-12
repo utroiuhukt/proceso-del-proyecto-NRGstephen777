@@ -1,0 +1,6 @@
+En la lectura se presentó acerca de ¿qué es la moral?, y para ello se nos presentó acerca del caso de un niña llamada "Teresa". 
+El caso de la bebé es que  tenia una enfermedad llamada "anencefalia" que consistía en que no se desarrollo un parte del cerebro qué permitía el razonamiento, la expresión de ideas o palabras y todos los bebes que nacían con esto morían al poco tiempo de haber nacido y los papás al darse cuenta de ello, como tutores legales de la menor, 
+desean dar los órganos de la bebé Teresa a los demás bebes que de verdad los necesiten pero al tiempo esto llega al ojo público y las opciones se dividen en que si no es una buena idea o el que si es una buena idea. 
+
+Este tema es bastante controversial, ya que tenemos muchos factores aquí como en que haría Teresa en esta situación, cuál es la mejor opción, etc., pero apesar de eso, la mejor opción a mi punto de vista el hecho dejarla morir ya que en cierta parte te estas involucrando de manera directa o indirectamente a su muerte y no es algo bueno porque estas matando a un ser vivo, 
+a alguien que siente dolor, tiene sentimientos aunque no tenga conciencia de eso: lo estas haciendo no es algo positivo y aunque sea por un bien mayor no esta bien y también porque la usarían para un fin para un propósito y ya.
